@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThanseemInsta
+- 👀 rookie
+- 🌱 I’m currently learning copmutrscience 
+- 💞️ I’m looking to collaborate on ...
+- 📫 mail : thanseeminsta@gmail.com
